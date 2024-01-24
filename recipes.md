@@ -128,4 +128,4 @@ Instructions:
 1. Combine 1 cup each of sugar and water and cook over medium heat until the sugar dissolves.
 2. Set the syrup aside to cool for about 10 minutes.
 3. Combine the cooled syrup and freshly-squeezed lemon juice in a pitcher.
-4. Add the remaining water and stir, then pour over ice and enjoy!
+4. Add the remaining water and stir, then pour over ice and enjoy!!
