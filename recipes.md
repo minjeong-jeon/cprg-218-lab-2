@@ -103,6 +103,7 @@ Ingredients:
 - 2 tsp vanilla extract
 - 3 cups semisweet chocolate chips
 - 2 cups coconut bites
+- 1 tsp milk
 
 Instructions:
 1. Preheat oven to 375°F (190°C).
